@@ -21,7 +21,7 @@
 
 - 📫 How to reach me **toshakbhat@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1eTFBrkMKlFFsYet6eb2BFCWf16X-s82m/view?usp=sharing](https://drive.google.com/file/d/1eTFBrkMKlFFsYet6eb2BFCWf16X-s82m/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1eTFBrkMKlFFsYet6eb2BFCWf16X-s82m/view?usp=sharing](https://drive.google.com/file/d/1eqLw-EWW2dE_jh90Q3YM-xhRAsvz435j/view?usp=drivesdk)
 
 - ⚡ Fun fact **Unlike people of my ages, I am more spiritual :)**
 
